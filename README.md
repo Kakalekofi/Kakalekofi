@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kakalekofi
+- 👋 Hi, fuck
 - 👀 I’m interested in ...Spamming or cracking 
 - 🌱 I’m currently learning ...Nothing but will be happy to know spamming or cracking 
 - 💞️ I’m looking to collaborate on ... a Boss 
